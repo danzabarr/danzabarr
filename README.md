@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Dan
-- 👀 I’m interested in yo momma ❤️
+- 👀 I’m interested in ya brain stuff ❤️
 - 🌱 I’m currently learning visual basic at foundation year Computer Science at Liverpool 
-- 💞️ I’m looking to collaborate on web projects and Unity games
+- 💞️ I’m looking to collaborate on software & web projects and Unity games
 - 📫 You can reach me at danzabarr@hotmail.co.uk
